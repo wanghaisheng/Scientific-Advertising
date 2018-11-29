@@ -1,8 +1,7 @@
-# CHAPTER THREE Offer Service
+# 第三章 提供服务
 
-Remember that the people you address are selfish, as we all are. They care nothing about your interest or your profit. They seek
-service for themselves. Ignoring this fact is a common mistake and a costly mistake in advertising. Ads say in effect, "Buy my brand. Give
-me the trade you give to others. Let me have the money." That is not a popular appeal.
+要牢记的是你所面对的人，和我们自己一样，大家都是自私的。他们对你的兴趣对你的利益毫不关心。他们想要的是服务。在做广告的人中间很多人会犯这个低级错误，犯错成本也很高。假如说广告上写，“就买我们的牌子把。把钱给别人不如给我们。”很明显，这毫无诱惑力。
+
 
 The best ads ask no one to buy. That is useless. Often they do not quote a price. They do not say that dealers handle the product.
 
