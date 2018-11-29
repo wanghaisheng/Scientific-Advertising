@@ -9,36 +9,27 @@
 
 有些广告看起来毫无私心，但他们都是基于对人性的理解设计出来的。设计人员深谙如何才能引导客户下单。
 
-Some of these ads seem altruistic. But they are based on a knowledge of human nature. The writers know how people are led to buy.
 
-Here again is salesmanship. The good salesman does not merely cry a name. He doesn't say, "Buy my article." He pictures the customer's
-side of his service until the natural result is to buy.
+我们又得说到销售。好的销售人员不止会提到某个具体的名称，他不会讲，“买我这篇文章把”。他会给客户描绘服务的效果直到自然而然的下单。
 
-A brush maker has some 2,000 canvassers who sell brushes from house to house. He is enormously successful in a line which would
-seem very difficult. And it would be if his men asked the housewives to buy.
 
-But they don't. They go to the door and say, "I was sent here to give you a brush. I have samples here and I want you to take your choice."
+某个刷子厂有大概两千名上门推销员。某款看起来不怎么样的产品结果非常成功。如果推销员只是简单粗暴的让家庭主妇买绝不是这样的结果。
 
-The housewife is all smiles and attention. In picking out one brush she sees several she wants. She is also anxious to reciprocate the gift.
-So the salesman gets an order.
+他们的策略是走到门口然后询问说，“公司派我来送一些刷子给你，这里有一些样品，您看想选哪一种”
 
-Another concern sells coffee, etc., by wagons in some 500 cities. The man drops in with a half-pound of coffee and says, "Accept this
-package and try it. I'll come back in a few days to ask how you like it."
+家庭主妇一般都是满脸微笑，全神贯注的在听你讲，拿起一只又会看到其他自己想要的。同时心里也会想白拿人东西不好意思。推销员也就顺势收获了一单。
 
-Even when he comes back he doesn't ask for an order. He explains that he wants to send the woman a fine kitchen utensil. It isn't free,
-but if she likes the coffee he will credit five cents on each pound she buys until she has paid for the article. Always some service.
+另一个案例是wagon公司在500个城市推销咖啡的。推销员会留下半磅的咖啡，告诉客户，“这包咖啡您收下，试试看效果。过些日子我会再来询问您喜欢不喜欢。”
 
-The maker of an electric sewing machine motor found advertising difficult. So, on good advice, he ceased soliciting a purchase. He offered to send to any home, through any dealer, a motor for one week's use. With it would come a man to show how to operate it."Let us help you for a week without cost or obligation," said the ad. Such an offer was resistless, and about nine in ten of the trials led to
-sales.
+到了回访的时候他也不会主动让客户购买。他告诉客户他会寄一套精美的厨具，但厨具不是免费的，如果喜欢咖啡的话 ，每买一磅他会便宜5分钱，这样子攒下来的钱就可以买厨具了。
 
-So in many, many lines. Cigar makers send out boxes to anyone and say, "Smoke ten, then keep them or return them, as you wish."
+有家生产电动缝纫机马达的厂家觉得做广告太难了。所以，在听取了意见之后，停止主动乞求客户购买产品。通过经销商，可以给任何家庭寄送一台缝纫机试用一个礼拜。到时候会有人上门示范如何操作。广告上会说，“免费试用一周”。这样的承诺非常有诱惑力，试用的人十有八九都会购买。
 
-Makers of books, typewriters, washing machines, kitchen cabinets, vacuum sweepers, etc., send out their products without any
-prepayment. They say, "Use them a week, then do as you wish." Practically all merchandise sold by mail is sent subject to return.
+在很多很多产品上都可这样操作。雪茄厂家会寄送一些产品，告诉客户，“抽十根，剩下的随你便，可以留着，也可以退给我们”
+出版书籍的、打印机、洗衣机、橱柜、吸尘器等等的商家往往不需要预付款就把产品寄给客户。“用一周，然后就随便你处置”。事实上所有邮件卖出的产品都是所赠送的产品所带来的订单。
 
-These are all common principles of salesmanship. The most ignorant peddler applies them. Yet the salesman-in-print very often forgets them. He talks about his interests. He blazons a name, as though that
-was of any importance. His phrase is "Drive people to the stores,"and that is his attitude in everything he says. People can be coaxed
-but not driven. Whatever they do they do to please themselves. Many fewer mistakes would be made in advertising if these facts were
-never forgotten.
+这些都是销售的常用原则。不起眼的街头小贩都会用这样的套路。但网络营销的人们往往忽略这样的原则。只是一味的谈自己的东西，强调自己的品牌，好像这个品牌是那么回事一样。惯用的话术是“把客户赶到店里去”，他说的任何话都是这个态度。
+客户是可以引导的，但你不能赶啊。这些人做的所有事都只是为了取悦自己。如果能够牢记这些事实，做广告时就会少犯很多错误了。
+
 
 
