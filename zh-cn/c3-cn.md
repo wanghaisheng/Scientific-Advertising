@@ -1,12 +1,13 @@
 # 第三章 提供服务
 
-要牢记的是你所面对的人，和我们自己一样，大家都是自私的。他们对你的兴趣对你的利益毫不关心。他们想要的是服务。在做广告的人中间很多人会犯这个低级错误，犯错成本也很高。假如说广告上写，“就买我们的牌子把。把钱给别人不如给我们。”很明显，这毫无诱惑力。
+要牢记的是你所面对的人，和我们自己一样，大家都是自私的。他们对你的兴趣对你的利益毫不关心。他们想要的是服务。在做广告的人中间很多人会犯这个低级错误，犯错成本也很高。假如说广告上写，“就买我们的牌子把。把钱给别人还不如给我们。”很明显，这毫无诱惑力。
+
+最好的广告从来不会让人买东西。这样做毫无用处。通常也不会提到价格，也不会告诉你哪个供应商有货。
 
 
-The best ads ask no one to buy. That is useless. Often they do not quote a price. They do not say that dealers handle the product.
+广告完全是植入在服务里的。我们会说对于用户来说有哪些好处，为了能让用户下单，可能会提供一些样品，寄一些小样给客户，这样客户就可以不花一分钱，零风险的证实他们所说的好处。
 
-The ads are based entirely on service. They offer wanted information. They cite advantages to users. Perhaps they offer a sample, or to buy the first package, or to send something on approval, so the customer may prove the claims without any cost or
-risk.
+有些广告看起来毫无私心，但他们都是基于对人性的理解设计出来的。设计人员深谙如何才能引导客户下单。
 
 Some of these ads seem altruistic. But they are based on a knowledge of human nature. The writers know how people are led to buy.
 
