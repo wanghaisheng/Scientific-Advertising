@@ -1,24 +1,18 @@
-# CHAPTER FOUR Mail Order Advertising— What It Teaches
+# 第四章 邮件营销广告——经验和教训
 
 
-The severest test of an advertising man is in selling goods by mail.But that is a school from which he must graduate before he can hope
-for success. There cost and result are immediately apparent. False theories melt away like snowflakes in the sun. The advertising is
-profitable or it is not, clearly on the face of returns. Figures which do not lie tell one at once the merits of an ad.
+广告人最严峻的考验是通过邮件销售产品。但如果想成功，必须过这一关。成本和结果是显而易见的。那些不靠谱的理论就像阳光下的雪花一样。广告是否赚钱，从回报中一眼就看得出来。数字是不会撒谎的，你可以很快了解某个广告的优缺点。
 
-This puts men on their mettle. All guesswork is eliminated. Every mistake is conspicuous. One quickly loses his conceit by learning
-how often his judgment errs—often nine times in ten.
+这给了从业人员极大的鼓舞。杜绝拍脑袋。每个失误都是显而易见的。在明白了自己主观判断十有八九是错的情况下，很快也就不再那么自负。
 
-There one learns that advertising must be done on a scientific basis to have any fair chance at success. And he learns how every wasted
-dollar adds to the cost of results.
+这时候人们意识到只有采用科学才能在广告行业取得成功。也明白了每浪费一分钱都增加了最终结果的成本。
 
-Here he is taught efficiency and economy under a master who can't be fooled. Then, and then only, is he apt to apply the same principles
-and keys to all advertising.
+广告主不再是那么好糊弄的，你必须效果又好成本又低。也只有这样才最终促使他将同样的原则和关键因素应用到所有的广告中去。
 
-A man was selling a five-dollar article. The replies from his ad cost him 85 cents. Another man submitted an ad which he thought better.
-The replies cost $14.20 each. Another man submitted an ad which for two years brought replies at an average of 41 cents each.
+有个人一篇广告收费5美元。收效的话算起来广告成本是85美分。另外一个人给了一个自认为更好的广告，每个订单的成本是14.20美元。另外一个人的广告持续了2年，每个订单的成本降到了41美分。
 
-Consider that difference, on 250,000 replies per year. Think how valuable was the man who cut the cost in two. Think what it would
-have meant to have continued that $14.20 ad without any key on returns.
+考虑到这其中的差异，假设每年产生25万个订单。你就算得出花14.20美元的人，却没有任何回报，到底意味着什么。
+
 
 Yet there are thousands of advertisers who do just that. They spend large sums on a guess. And they are doing what that man did—
 paying for sales from 2 to 35 times what they need cost.
