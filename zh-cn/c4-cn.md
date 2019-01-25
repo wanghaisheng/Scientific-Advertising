@@ -13,21 +13,16 @@
 
 考虑到这其中的差异，假设每年产生25万个订单。你就算得出花14.20美元的人，却没有任何回报，到底意味着什么。
 
+但数以千计的从业者还是在这么做。靠拍脑袋浪费了大量的预算。跟前面案例的主人公一样，往往要付出2到35倍的代价。
 
-Yet there are thousands of advertisers who do just that. They spend large sums on a guess. And they are doing what that man did—
-paying for sales from 2 to 35 times what they need cost.
+一份有关邮件销售广告的调研揭示了许多值得我们学习的东西。这是我们研究的主旋律。从一开始一直持续下去，你也知道肯定会有回报。因此也就知道哪些才是适合某款产品的好广告。
 
-A study of mail order advertising reveals many things worth learning. It is a prime subject for study. In the first place, if
-continued, you know that it pays. It is therefore good advertising as applied to that line.
+好处在于这条广告是经过多方比较选出来的，因此也是当前最适合这款产品的广告。
 
-The probability is that the ad has resulted from many traced comparisons. It is therefore the best advertising yet discovered for
-that line.
+我们要好好研究这类广告，它们是经过实践考验的，并不是纸上谈兵的理论。它不会坑你。这些经验教训是那些明智的从业者应用在所有广告中的基本原则。
 
-Study those ads with respect. There is proved advertising, not theoretical. It will not deceive you. The lessons it teaches are
-principles which wise men apply to all advertising.
+通常邮件订单广告的字体都比较小。通过比印刷品的字体要小一些。空间经济学是普适性的。因此我们认为不是说字体大一些效果就会更好。
 
-Mail order advertising is always set in small type. It is usually set in smaller type than ordinary print. That economy of space is universal.
-So it proves conclusively that larger type does not pay.
 
 Remember that when you double your space by doubling the size of your type. The ad may still be profitable. But traced returns have
 proved that you are paying a double price for sales.
