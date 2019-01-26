@@ -48,13 +48,11 @@
 
 想想那些无数的没有跟踪调查的广告，绝大部分的投入都浪费在一时冲动上，并不会增加销售收入。这样的情况持续了许多年。
 
-如果你要的是直接取得销售收入，邮件广告就要尽可能讲述一个完整的故事。邮件订单广告是很好的试金石。一份广告的发放数量不受限制。
-有句名言“”
-Mail order advertising tells a complete story if the purpose is to make an immediate sale. You see no limitations there on amount of copy.
-The motto there is, "The more you tell the more you sell." And it has never failed to prove out so in any test we know.
+如果你要的是直接取得销售收入，邮件广告就要尽可能讲述一个完整的故事。一份广告的分发数量不受限制。
+有句名言“讲的越多卖的越多”。迄今为止这个观点似乎还没有失败过。
 
-Sometimes the advertiser uses small ads, sometimes large ads. None are too small to tell a reasonable story. But an ad twice larger brings
-twice the returns. A four-times-larger ad brings four times the returns, and usually some in addition.
+有时候广告从业人员会用小一点的广告，有时候会用大一些的广告。但往往两倍大小的广告收入也是两倍。四倍大小的广告收入也是四倍，通常还会更多一些。
+
 
 But this occurs only when the larger space is utilized as well as the small space. Set half-page copy in a page space and you double the
 cost of returns. We have seen many a test prove that.
