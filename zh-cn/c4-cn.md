@@ -48,7 +48,8 @@
 
 想想那些无数的没有跟踪调查的广告，绝大部分的投入都浪费在一时冲动上，并不会增加销售收入。这样的情况持续了许多年。
 
-如果你要的就是销售收入，邮件订单广告是很好的试金石。一份广告
+如果你要的是直接取得销售收入，邮件广告就要尽可能讲述一个完整的故事。邮件订单广告是很好的试金石。一份广告的发放数量不受限制。
+有句名言“”
 Mail order advertising tells a complete story if the purpose is to make an immediate sale. You see no limitations there on amount of copy.
 The motto there is, "The more you tell the more you sell." And it has never failed to prove out so in any test we know.
 
