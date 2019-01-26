@@ -23,31 +23,24 @@
 
 通常邮件订单广告的字体都比较小。通过比印刷品的字体要小一些。空间经济学是普适性的。因此我们认为不是说字体大一些效果就会更好。
 
+要牢记的是当你把字体放大两倍，占用的空间也就是原来的两倍。这时候这个广告也许还是赚钱的。但实践证明你为此多花了2倍的成本。
 
-Remember that when you double your space by doubling the size of your type. The ad may still be profitable. But traced returns have
-proved that you are paying a double price for sales.
+在邮件订单广告中是一点都不能浪费版面的。每一行我们都要进行优化。极少会使用边框。当你把价值千金的版面放空的时候要想起这些原则。
 
-In mail order advertising there is no waste of space. Every line is utilized. Borders are rarely used. Remember that when you are
-tempted to leave valuable space unoccupied.
+在邮件订单广告中没有闲聊，没有夸大，唯有精心的服务。没有逗乐，也没有杂谈。
 
-In mail order advertising there is no palaver. There is no boasting, save of super-service. There is no useless talk. There is no attempt at
-entertainment. There is nothing to amuse.
 
-Mail order advertising usually contains a coupon. That is there to get some action from the converts partly made. It is there to cut out as a
-reminder of something the reader has decided to do.
+邮件订单广告中通常会有一个优惠券。这是为了让有意向的用户下单，提醒读者过来了解了解。
 
-Mail order advertisers know that readers forget. They are reading a magazine of interest. They may be absorbed in a story. A large
-percentage of people who read an ad and decide to act will forget that decision in five minutes. The mail order advertiser knows that
-waste by tests, and he does not propose to accept it. So he inserts that reminder to be cut out, and it turns up when the reader is ready to act.
 
-In mail order advertising the pictures are always to the point. They are salesmen in themselves. They earn the space they occupy. The
-size is gauged by their importance. The picture of a dress one is trying to sell may occupy much space. Less important things get
-smaller spaces.
+邮件订单广告从业人员深谙读者是健忘的。他们只读那些自己感兴趣的杂志。也许会被某个故事吸引。绝大部分看到广告的读者想要了解产品的在5分钟之后会忘记自己的想法。广告从业人员通过测试发现了这样的流失情况，并不想丢失这些客户。所以才会有这些可以剪下来的备忘录，读者有想法的时候可以提醒他们。
 
-Pictures in ordinary advertising may teach little. They probably result from whims. But pictures in mail order advertising may form half the
-cost of selling. And you may be sure that everything about them has been decided by many comparative tests.
 
-Before you use useless pictures, merely to decorate or interest, look over some mail order ads. Mark what their verdict is.
+在邮件订单广告中图片往往是关键。图片就是销售人员的化身。图片所占用的空间是其价值所在。重要性越高，图片越大。你如果想要销售一件裙子，裙子的图片可能会占据绝大部分的空间。越不重要的占用的空间越少。
+
+传统广告中的图片可能并不会这样。它们多半出自突发奇想。但邮件订单广告中的图片可能占了一半的营销成本。这时候你要确保一件事，所有相关的决策都是千万次对比测试之后做出的最好的选择。
+
+在你使用一些无用的图片，仅仅为了装饰或者个人喜好，多看看邮件订单广告。多想想他们的标准。
 
 A man advertised an incubator to be sold by mail. Type ads with right headlines brought excellent returns. But he conceived the idea
 that a striking picture would increase those returns. So he increased his space 50 per cent to add a row of chickens in silhouette.
