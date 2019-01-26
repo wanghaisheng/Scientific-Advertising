@@ -40,19 +40,15 @@
 
 传统广告中的图片可能并不会这样。它们多半出自突发奇想。但邮件订单广告中的图片可能占了一半的营销成本。这时候你要确保一件事，所有相关的决策都是千万次对比测试之后做出的最好的选择。
 
-在你使用一些无用的图片，仅仅为了装饰或者个人喜好，多看看邮件订单广告。多想想他们的标准。
+在你使用一些无用的图片之前，仅仅是为了装饰或者出于个人喜好，多看看邮件订单广告。多想想他们的标准。
 
-A man advertised an incubator to be sold by mail. Type ads with right headlines brought excellent returns. But he conceived the idea
-that a striking picture would increase those returns. So he increased his space 50 per cent to add a row of chickens in silhouette.
+有个人想通过邮件广告来销售一批孵化器。恰当的广告标题就能给他带来不菲的回报。但他觉得一个漂亮的图片会带来更多的销售收入。因此把广告空间扩大了50%，放了一排孵出来的小鸡图片。这个广告的确很有震撼力，但为此他每一单的成本增加了50%，新的广告中每增加一排小鸡图片成本增加一般，但销售收入并未增加。
 
-It did make a striking ad, but his cost per reply was increased by exactly 50 per cent. The new ad, costing one-half more for every
-insertion, brought not one added sale.
+他总结出买孵蛋器的买家都是些现实的人，他们要的是性价比，对图片并不关心。
 
-The man learned that incubator buyers were practical people. They were looking for attractive offers, not for pictures.
+想想那些无数的没有跟踪调查的广告，绝大部分的投入都浪费在一时冲动上，并不会增加销售收入。这样的情况持续了许多年。
 
-Think of the countless untraced campaigns where a whim of that kind costs half the advertising money without a penny of return. And
-it may go on year after year.
-
+如果你要的就是销售收入，邮件订单广告是很好的试金石。一份广告
 Mail order advertising tells a complete story if the purpose is to make an immediate sale. You see no limitations there on amount of copy.
 The motto there is, "The more you tell the more you sell." And it has never failed to prove out so in any test we know.
 
